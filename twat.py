@@ -1,0 +1,1 @@
+print("shove some piss in your dick ya fat twat")
